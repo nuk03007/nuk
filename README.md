@@ -1,7 +1,6 @@
 zzwqwqxz
 1213sffffsdfsd
-sdwdsdsad
-SDSdcdfsdds
+sdwdsds
 dgdsgtsrgrgseafwe
 dffsfsa
 dfgdgdg
