@@ -5,7 +5,6 @@ dgdsgtsrgrgseafwe
 dffsfsa
 dfgdgdg
 fgzrdgefw
-trtetewr
-bcvbcfbgfdg
+tr
 fgrddadsadsaft5et5y5y
 dfsagrgsthst
