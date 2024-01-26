@@ -7,6 +7,4 @@ dfgdgdg
 fgzrdgefw
 tr
 fgrddadsadsaft5et5y5y
-dfsagrgsthstvvsdfsfdfhbt
-fgfgdggds
-dgsdgsgdszgz
+dfsagrgsthstvvs
