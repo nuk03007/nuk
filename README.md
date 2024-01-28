@@ -2,8 +2,4 @@ zzwqwqxz
 1213sffffsdfsd
 sdwdsds
 dgdsgtsrgrgseafwe
-dffsfsa
-dfgdgdg
-fgzrdgefw
-tr
-fgrddadsa
+dffsfs
